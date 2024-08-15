@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nohing
 - 📫 How to reach me just dont reach me
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I'm a 12 year old without brainrot and no im some kinda genius nerdy guy
+- ⚡ Fun fact: I'm a 12 year old without brainrot and no im not some kinda genius nerdy guy
 
 <!---
 KrakedKen/KrakedKen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
